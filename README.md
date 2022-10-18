@@ -1,1 +1,1 @@
-# mtm6302-emoji-your-vatr0004
+# mtm6302-emoji-vatr0004
